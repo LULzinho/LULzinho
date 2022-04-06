@@ -1,8 +1,8 @@
 - Hey, im LULzinho
 - I live in Brazil, and its quite cool here
 - I Like to play games
-- And i like to hear music
-- watch stuff on youtube
+- To hear music
+- And to watch stuff on youtube
 - ══════════
 - ═ ▂▄▄▓▄▄▂
 - ◢◤ █▀▀████▄▄▄▄◢◤
