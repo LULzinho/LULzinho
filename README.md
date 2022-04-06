@@ -1,8 +1,17 @@
+- ENG↓
 - Hey, im LULzinho
 - I live in Brazil, and its quite cool here
-- I Like to play games
+- I like to play games
 - To hear music
 - And to watch stuff on youtube
+- •
+- PT-BR↓
+- Olá, eu sou LULzinho
+- Eu moro no Brasil, e é até que bem legal aqui
+- Eu gosto de jogar jogos
+- De escutar Música
+- E de ver vídeos no Youtube
+- •
 - ══════════
 - ═ ▂▄▄▓▄▄▂
 - ◢◤ █▀▀████▄▄▄▄◢◤
